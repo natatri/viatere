@@ -1,2 +1,3 @@
-# viatere
-gunakan dengan vijak
+# Bonstri
+REDEEM MANUAL DULU VOCNYA KLO BLUM PERNAH REDEEM
+KLO UDAH PERNAH TINGGAL GAS
